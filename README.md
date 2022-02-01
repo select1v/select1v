@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @select1v
+- 👋 Hi, I’m @selectiv
 - 👀 I’m interested in learning stuff
 - 🌱 I’m currently learning something probably
 - 💞️ I’m NOT looking to collaborate yet
